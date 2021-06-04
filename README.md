@@ -1,4 +1,4 @@
-Inovatively Secure - Principally Open-Source - Truly Private
+Innovatively Secure - Principally Open-Source - Truly Private
 
 https://ironapples.com
 
